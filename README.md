@@ -9,6 +9,6 @@ Me though? Feel kind of tired most of the time. Feels like things provoke much l
 
 Also, they may hate on video games, but they are kind of a big part of me. It really sucks if something that you loved is diminished. Even if we are just talking about entertainment products here or pieces of art. It's like loving literature or any other pieces of fiction and feels like its being eroded over time. I mean, I guess there are more important things that exist. Human rights such as the right to online privacy being one thing. You can always find more important things, but I guess I had some aspirations towards that particular piece of media. I'd hate to think that they were actually trying to steer me away from my fondness of it and that they would actually succeed.
 
-The things that I have seen. Holy shit. Oh well.
+The things that I have seen. Holy shit. Oh well. Feels like I need more variability in how I construct sentences.
 
 Here you go. Some more weapons against me that you can add to your arsenal. I guess if you don't have any morals anything is possible! The STASI knew that and so do they, apparently. I mean, knowledge IS power and knowledge of what makes people tick, their likes and dislikes, what they are thinking and so forth - this gives you great power over them. 
